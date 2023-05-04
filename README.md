@@ -7,3 +7,5 @@
 [Netflix](https://sketchboard.me/TDME4AAwFgvB#/)
 
 [Chat application](https://sketchboard.me/PDNaH6VYDPTE#/)
+
+[VK social](https://sketchboard.me/ZDNsY8OqFvkE#)
